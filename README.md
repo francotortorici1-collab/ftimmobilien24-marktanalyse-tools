@@ -68,4 +68,4 @@ https://www.ftimmobilien24.com/immobilienmakler-münchen/immobilien-services-rat
 Franco Tortorici  
 FT Immobilien 24 – Immobilienmakler München  
 📍 München, Bayern  
-✉️ info@ftimmobilien24.com
+✉️ kontakt@ftimmobilien24.com
